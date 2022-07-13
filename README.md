@@ -10,6 +10,8 @@
 - Visiter un beau café ancien
 - Visiter les Invalides à Paris
 - Faire une balade sur un beau vignoble  
+- Apprendre à nager à Sihyun
+- Manger la moule frites
 
 # Liste Léa en Corée 
 - Aller voir Sihyeon et sa chatte
