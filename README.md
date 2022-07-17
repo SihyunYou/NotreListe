@@ -12,6 +12,7 @@
 - Faire une balade sur un beau vignoble  
 - Apprendre à nager à Sihyun
 - Manger la moule frites
+- Visiter les calanques
 
 # Liste Léa en Corée 
 - Aller voir Sihyeon et sa chatte
