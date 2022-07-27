@@ -27,3 +27,4 @@
 - Apprendre la culture
 - Aller manger le sushi dans un restaurant chicos
 - Faire 치맥(du poulet frit + de la bière)
+- Aller voir la lune ensemble
